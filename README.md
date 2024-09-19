@@ -5,7 +5,7 @@
 
 - 👯 I’m looking to collaborate on **Java Projects**
 
-- 💬 Ask me about **Java,python,sql,frontend**
+- 💬 Ask me about **Software devlopment**
 
 - 📫 How to reach me **sahildeshmukhofficial45@gmail.com**
 
