@@ -9,7 +9,6 @@
 
 - 📫 How to reach me **sahildeshmukhofficial45@gmail.com**
 
-- 📄 Know about my experiences [https://amaranth-elissa-10.tiiny.site](https://amaranth-elissa-10.tiiny.site)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
